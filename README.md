@@ -31,9 +31,9 @@ Let's connect and explore the possibilities together!
 
 -you can reach me on facebook, x/twitter, reddit, linkedIn
 
-facebook: https: //facebook.com/
+facebook: https: https://www.facebook.com/profile.php?id=100071627593218
 
-x/twitter: 
+x/twitter: https://twitter.com/Dani3634128
 
 linkedIn: 
 
